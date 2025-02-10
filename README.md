@@ -70,10 +70,6 @@
 
 ---
 
-This version keeps your experience well-structured, concise, and professional. Let me know if you'd like any further refinements! 🚀  
-
----
-
 ### **Cloud Engineer Intern**  
 📍 *Cognizant Technology Solutions* *(January 2020 - May 2020)*  
 - 💰 **Optimized AWS cloud resources**, reducing costs by 35% and improving app performance by 30%.  
