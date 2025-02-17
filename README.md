@@ -1,6 +1,5 @@
 # **Chanikya Boggarapu**  
-📍 Michigan, USA | 📞 +1 (616) 264-7182 | ✉️ [boggarac@mail.gvsu.edu](mailto:boggarac@mail.gvsu.edu)  
-🔗 [LinkedIn](https://www.linkedin.com/in/chanikya-boggarapu/) | 🔗 [GitHub](https://github.com/chanikya1)  
+📍 Michigan, USA | 📞 +1 (616) 264-7182 | 🔗 [LinkedIn](https://www.linkedin.com/in/chanikya-boggarapu/) | 🔗 [GitHub](https://github.com/chanikya1)  
 
 ---
 
